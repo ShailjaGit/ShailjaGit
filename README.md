@@ -6,6 +6,6 @@
 - 👯 I’m looking to collaborate on ...Java Projects
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...Anything
-- 📫 How to reach me: ...[email](https://mail.google.com/mail/u/0/#inbox?compose=DmwnWsczldXtsXMmNFhVGPSsdFfwKScrNFTkrKBlSMgzGSwXgxpdKPHfRPqCXxNrTxpxKnVvXwtL)
+- 📫 How to reach me: ...[twitter](https://twitter.com/Shailja_16)
 - 😄 Pronouns: ...She/Her
 - ⚡ Fun fact: ...Researcher
