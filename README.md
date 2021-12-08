@@ -7,5 +7,5 @@
 - 💬 Ask me about ...Anything
 - 📫 How to reach me: ...[twitter](https://twitter.com/Shailja_16)
 - 😄 Pronouns: ...She/Her
-- ⚡ Fun fact: ...Researcher
+- ⚡ Fun fact: ...self talker
  <!--- 🤔 I’m looking for help with ... -->
